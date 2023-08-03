@@ -1,4 +1,4 @@
-[wowza](http://dsinkerii.rf.gd/pfpnew.gif?width=293&height=293)
+[](http://dsinkerii.rf.gd/pfpnew.gif)
 
 ### sup!
 
