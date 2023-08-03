@@ -1,3 +1,4 @@
+<img align="left" width="150" src="https://media.discordapp.net/attachments/1134600951999778940/1136694881985761451/pfpnew.gif?width=293&height=293">
 
 ### sup!
 
