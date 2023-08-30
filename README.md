@@ -9,3 +9,5 @@ you can check out my awesome website i have that explains who i am
 ## https://dsinkerii.rf.gd
 
 if you have any questions, ideas or bug reports, contact me on discord!: @dsinkerii
+
+(also, i have a discord server!! go join it: https://discord.gg/Q7zp8pavwR)
