@@ -10,6 +10,4 @@ you can check out my awesome website i have that explains who i am
 
 if you have any questions, ideas or bug reports, contact me on discord!: @dsinkerii
 
-### in case you have even a little penny lying around and you want to support me, id really, like really appreciate that!!!
-## https://boosty.to/dsinkerii
-(i will be forever grateful for that)
+(removed donations link for now)
