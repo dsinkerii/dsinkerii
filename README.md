@@ -10,4 +10,4 @@ you can check out my awesome website i have that explains who i am
 
 if you have any questions, ideas or bug reports, contact me on discord!: @dsinkerii
 
-(removed donations link for now)
+(ps, im looking for a freelance job, so if you need a coder for a game or any code of any programming language i use (c#, c++ - still learning or python), would be glad to work!)
